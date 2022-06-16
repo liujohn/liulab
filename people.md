@@ -30,6 +30,7 @@ Joanna received her undergraduate degree in health sciences from Chapman Univers
 
 Staff Research Associate
 
-Katie received her undergraduate degree from University of California, Berkeley in Molecular and Cell Biology and Public Health with a minor in Global Public Health. She worked in the Feldman lab at UC Berkeley conducting neuroscience research and also in the Betancur lab at UCSF. Her research focus is developing epigenetic editing tools for silencing drivers of glioblastoma _in vivo_.  
+Katie received her undergraduate degree from University of California, Berkeley in Molecular and Cell Biology and Public Health with a minor in Global Public Health. She worked in the Feldman lab at UC Berkeley conducting neuroscience research and also in the Betancur lab at UCSF. Her research focus is developing epigenetic editing tools for silencing drivers of glioblastoma _in vivo_. In her free time, Katie enjoys running, breadmaking, thrifting, and exploring new coffee shops. 
+
 
 
